@@ -17,11 +17,15 @@ Mayzie Mangos <3
 Jake(?): I play an eletric guitar when i burst out lighting tocking the jam HELL YEAH!!! 
 Jake(?): Did you know I'm a leader of an alpha wolf? Once it hits full moon, I'm going to AWOOOOOOOOOOOO
 Jake(?): I have boundaries you have to follow. DON'T. TOUCH. MY. TAIL. If you ever touch my tail, you'll get your ass whooping. /srs
-Jake(?):Watch out, I'll protect you at all cost....
+Jake(?): Watch out, I'll protect you at all cost....
 
 
 Alvin: What....?
-Alvin: Don't fuck with me, that's not who I am.
+Alvin: Don't fuck with me, that's not who I am Luka.
+Luka: Oh? whoops my bad cuh
+Alvin: LUKA. We are not in 2025!! Move out of my way, what year is it??
+Alvin: ...
+Sakura: Sorry! Sorry! I just got here! What did I miss?
 
 
 Hii
