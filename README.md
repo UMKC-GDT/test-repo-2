@@ -26,6 +26,6 @@ Luka: Oh? whoops my bad cuh
 Alvin: LUKA. We are not in 2025!! Move out of my way, what year is it??
 Alvin: ...
 Sakura: Sorry! Sorry! I just got here! What did I miss?
-
+Rose: HELLO
 
 Hii
