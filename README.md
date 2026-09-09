@@ -32,9 +32,4 @@ Rose: HELLO
 
 
 Hii
-
-
-
-Hi, I'm Michael, uh... what on earth is going on in here?
-
-woa :3c
+print("hello world")
