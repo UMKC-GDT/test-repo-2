@@ -8,6 +8,8 @@ Mayzie Mangos <3
 
 Hiii
 
+im making a change
+
 
 
 Mayzie Mangos <3
@@ -31,5 +33,16 @@ Sakura: Sorry! Sorry! I just got here! What did I miss?
 Rose: HELLO
 
 
+
 Hii
+
 print("hello world")
+
+
+
+
+Hi, I'm Michael, uh... what on earth is going on in here?
+
+woa :3c
+
+
