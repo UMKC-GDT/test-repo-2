@@ -1,6 +1,7 @@
 # test-repo-2
 
 
+
 Zack!
 
 Mayzie Mangos <3
@@ -14,10 +15,11 @@ Mayzie Mangos <3
 
 
 ???: Yoooooooo, my name is Jake and I am a half demon, a half angel, im very hot I got these nice biceps on my arm. Check it out ey? I got these pretty buns down in my body.  
-Jake(?): I play an eletric guitar when i burst out lighting tocking the jam HELL YEAH!!! 
+Jake(?): I play an eletric guitar when i burst out lighting tocking the jam HELL YEAH!!!
 Jake(?): Did you know I'm a leader of an alpha wolf? Once it hits full moon, I'm going to AWOOOOOOOOOOOO
 Jake(?): I have boundaries you have to follow. DON'T. TOUCH. MY. TAIL. If you ever touch my tail, you'll get your ass whooping. /srs
 Jake(?): Watch out, I'll protect you at all cost....
+
 
 
 Alvin: What....?
@@ -28,4 +30,10 @@ Alvin: ...
 Sakura: Sorry! Sorry! I just got here! What did I miss?
 
 
+
 Hii
+
+
+
+Hi, I'm Michael, uh... what on earth is going on in here?
+
